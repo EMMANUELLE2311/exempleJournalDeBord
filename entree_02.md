@@ -6,18 +6,17 @@ Exemple:
 ### [Bulle](https://www.onf.ca/interactif/bulle/) 
 L'oeuvre *Bulle* m'interpelle beaucoup puisque c'est une oeuvre interactive qui porte un message fort. En effet, elle tente de nous sensibiliser aux enjeux climatiques. Prendre position et défendre des valeurs par l'art est l'un des aspects du multimédia qui m'intéresse beaucoup. 
 
-### Lien 1 
-Expliquer pourquoi vous avez choisi ce lien. 
+### Lumifest
+je l'ai choisi parce qu'ils utilise du matériel de projections par exemple pour représenter la mer et ces multiples mammifères marins, cela donne plus de realisme et d'amusement à la visite
+### OASIS immersion
+il contribue a plusieurs oeuvres multimédia. Certains grands peintres ont leurs oeuvres diffusés. Ils nous laisse dans une vague d'émotions et de tourement. On dirais presque des fois un monde imaginaire.
 
-### Lien 2 
-Expliquer pourquoi vous avez choisi ce lien.
+### musée d'illusion a Montréal
+Ils nous transportent dans un monde linéaire et fictifs. ils jouent avec nos sens dont la vue. Les illusions optiques sont bénifiques pour le développement du cerveau. Il aide a distinguer le réel du faux.
 
-### Lien 3 
-Expliquer pourquoi vous avez choisi ce lien.  
+### spectacle multimédia générations Montréal 
+Ils offrent une expérience multisensorielle grace au matériel multimédia dont les projections lumineuses.
 
-### Lien 4 
-Expliquer pourquoi vous avez choisi ce lien. 
-
-### Lien 5 
-Expliquer pourquoi vous avez choisi ce lien. 
+### Atelier des lumières à Paris
+Ils nous fait découvrir le monde marins a un point telle proche du réaliste que s'en est bloffant a l'oeil. Ils nous font voyager avec eux et nous captives.
 
